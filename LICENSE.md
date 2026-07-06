@@ -1,4 +1,4 @@
-# 
+# Natif WinRAR modèles pour Mac OS | Nouveau WinRAR modèles pour PC Windows. Avec nettoyage du navigateur et support multi-formats — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
